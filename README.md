@@ -1,1 +1,1 @@
-Please check individual branches to see my projects
+Please check individual branches where it says main to see my projects
